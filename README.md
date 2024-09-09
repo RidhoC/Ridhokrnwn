@@ -1,0 +1,2 @@
+# Ridhokrnwn
+Profil sekolah
